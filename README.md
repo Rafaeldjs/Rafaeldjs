@@ -39,6 +39,6 @@ Sou estudante de Tecnologia da Informação, com foco em lógica de programaçã
 
 ## 📫 Contato
 
-- Email:  https://mail.google.com/mail/u/0/?tab=rm&ogbl#inbox
+- Email: Rafa01.ads@gmail.com
 - LinkedIn: [www.linkedin.com/in/rafael-de-jesus-063311311](https://www.linkedin.com/in/rafael-de-jesus-063311311/)
 

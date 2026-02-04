@@ -39,6 +39,6 @@ Sou estudante de Tecnologia da Informação, com foco em lógica de programaçã
 
 ## 📫 Contato
 
-- GitHub: https://github.com/Rafaeldjs  
+- Email:  https://mail.google.com/mail/u/0/?tab=rm&ogbl#inbox
 - LinkedIn: [www.linkedin.com/in/rafael-de-jesus-063311311](https://www.linkedin.com/in/rafael-de-jesus-063311311/)
 
